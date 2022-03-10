@@ -1,2 +1,0 @@
-# emotionalboy.github.io
-Homepage
